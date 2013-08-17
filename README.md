@@ -11,4 +11,4 @@
 >* Honey (the smallest amount should do the trick. talking a few drops here)
 
 **A word about cilantro:** 
-In consideration of those 10% of people who find cilantro to taste weird and soapy (myself included), this reciped excludes the strange herb. 
+In consideration of those 10% of people who find cilantro to taste weird and soapy (myself included), this recipe excludes the strange herb. 
